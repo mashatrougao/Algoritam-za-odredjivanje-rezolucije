@@ -1,0 +1,1 @@
+# Algoritam-za-odredjivanje-rezolucije
